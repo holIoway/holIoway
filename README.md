@@ -1,16 +1,33 @@
-## Hi there 👋
+<p align="center">
+<img src="https://media1.tenor.com/m/bsVF6ozY8DMAAAAd/forsaken-roblox-forsaken.gif"{300px:300px} />
+</p>
 
-<!--
-**c00Igui/c00Igui** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<h2 align="center">
+  INFO
+</h2>
 
-Here are some ideas to get you started:
+<br>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+I am diagnosed with depression and take meds for it, I will have episodes, with that being said if I ever ignore/not talk to you, you did nothing wrong unless I TELL YOU that you did (I will tell you if you did something I didn't like) 
+</p>
+
+<br>
+
+<h2 align="center">
+  BFYI / DNI (fandoms/personal)
+</h2>
+
+<br>
+
+<p align="center">
+proshippers, homophobia/transphobia. racist/racism. 
+</p>
+
+<p align="center">
+NO JOKES OR MENTIONS OF S/H (UNLESS VENTING WITH A GO AHEAD.
+</p>
+
+<p align="center">
+NOT LOOKING FOR A RELATIONSHIP/DONT ASK
+</p>
