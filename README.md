@@ -3,5 +3,5 @@
 </p>
 <br>
 <p align=center>
-  alright, i guess
+  alright, I guess
 </p>
